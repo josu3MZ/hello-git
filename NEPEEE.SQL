@@ -1,1 +1,1 @@
-GOKUUUUUUU
+gohaaaaann
